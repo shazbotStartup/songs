@@ -1,0 +1,28 @@
+verse
+the just keeps on turning
+as day turns into night
+she swore that she would follow him 
+and love him the rest of her life
+
+then their two worlds were as one
+with the joining of their hands
+sharng love in the fairy tale world
+of golden wedding bands
+
+chorus
+like the stream flows on and on - unending
+as if time had just begun - they are spending
+lives and dreams that flow into the sea
+and the river rushes on
+
+verse
+She gave birth to a son
+fair skinned with golden hair
+the image of his father
+the precious fruit of the love they shared
+
+he grew into a man 
+and did as men must do
+he found a girl and fell in love
+they had a young son too
+
